@@ -1,4 +1,4 @@
-Nama : ghaizan aulia
+Nama : Ghaizan Aulia
 <br>
 Kelas : XI RPL 3
 <br>
